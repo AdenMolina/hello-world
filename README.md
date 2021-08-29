@@ -1,2 +1,2 @@
 # hello-world
-just another repository
+My name is Aden Molina, accounting major. 
